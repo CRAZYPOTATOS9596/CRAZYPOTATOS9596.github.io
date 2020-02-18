@@ -1,1 +1,1 @@
-# CRAZYPOTATOS9596.github.io.
+# CRAZYPOTATOS9596.github.io
